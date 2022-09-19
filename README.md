@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BenjoSVK
+- 👀 I’m interested games, sports, coding and other stuff.
+- 🌱 I’m currently learning at STU FIIT in Slovakia.
+- 💞️ I’m looking to collaborate on student jobs
+- 📫 How to reach me benjami.ptacek@gmail.com
